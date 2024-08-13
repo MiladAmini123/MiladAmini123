@@ -1,12 +1,8 @@
 # Hi, There...!!!
 
-## Who's code'sGhost...???
+## Who's MiladAmini123...???
 
 A seasoned programmer who has no work experience so far and he wants to be a successfull Hacker an developer.
-
-## But...!!!
-
-My real name is Khwaja saifullah and I like code'sGhost name...
 
 ## Things I Like...
 
